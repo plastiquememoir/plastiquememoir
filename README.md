@@ -1,9 +1,5 @@
-## Hi there 👋
+## Hi! I am plastique and I do things on the internet
 
-
-**plastiquememoir/plastiquememoir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 -  I’m currently working on nothing for now lol
 -  I’m currently learning C for electrical engineering
