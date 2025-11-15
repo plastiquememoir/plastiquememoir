@@ -6,5 +6,4 @@
 -  Ask me about Clairo albums
 -  How to reach me: My discord is armouxplastique. Hit me up anytime!
 -  Pronouns: Any!
--  Fun fact: I am pansexual
 <img width="604" height="596" alt="image" src="https://github.com/user-attachments/assets/3da56d3d-50db-4482-9354-fd62363271d6" />
